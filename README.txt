@@ -1,3 +1,3 @@
-https://www.youtube.com/watch?v=NUjN2Mln_Gg&list=PLB0Tybl0UNfYoJE7ZwsBQoDIG4YN9ptyY&index=11
+Self-driving Car tutorial 2 by Radu Mariescu-Istodor
 
-up to 3:36:29
+https://www.youtube.com/watch?v=NUjN2Mln_Gg&list=PLB0Tybl0UNfYoJE7ZwsBQoDIG4YN9ptyY&index=11
